@@ -13,4 +13,4 @@ Auto Reaction Tool [SOURCECODE]
 
 > Questions or Issues?
  > Contact me on Discord!
-   > .gg/michiservices | Michi.exe#0001
+   > https://discord.gg/SbGJQTeHQg | not342
